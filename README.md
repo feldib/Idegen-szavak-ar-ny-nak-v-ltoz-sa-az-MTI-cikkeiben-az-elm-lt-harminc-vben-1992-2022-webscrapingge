@@ -1,0 +1,1 @@
+# Idegen-szavak-ar-ny-nak-v-ltoz-sa-az-MTI-cikkeiben-az-elm-lt-harminc-vben-1992-2022-webscrapingge
